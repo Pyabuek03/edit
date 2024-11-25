@@ -11,6 +11,7 @@
 * ⭐ **[Cineby](https://www.cineby.ru/)** - Movies / TV / Anime / Auto-Next
 * ⭐ **[Freek](https://freek.to/)** - Movies / TV / Anime / Auto-Next
 * ⭐ **[Broflix](https://broflix.cc/)** - Movies / TV / Anime
+* * ⭐ **[Flixway](https://flixway.pro/)** - Movies / TV / Anime / [Telegram](https://t.me/+slT1E6xBqN44YmNk)
 * ⭐ **[HydraHD](https://hydrahd.cc/)** - Movies / TV / Anime / [Telegram](https://t.me/+BUrW9XlfiW1lNDQ0)
 * ⭐ **[456movie](https://456movie.com/)**, [2](https://www.345movies.com/) - Movies / TV / 4K
 * ⭐ **[PopcornMovies](https://popcornmovies.to/)** - Movies / TV / Anime
